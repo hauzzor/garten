@@ -1,3 +1,4 @@
 
 aegwgwg
 [[blubber]]
+![[wald.jpg]]
