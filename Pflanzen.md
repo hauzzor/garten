@@ -1,6 +1,10 @@
 
 Samen zur Aussaat:
 
+aussaht zeitpunkt für folgende pflanzen.
+ohne vorzucht direkt ins beet.
+halbschatten, lehmiger boden, bei würzburg.
+
 Radieschen
 Zwiebeln
 Karotten
